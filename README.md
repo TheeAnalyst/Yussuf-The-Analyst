@@ -1,4 +1,4 @@
-👋 Hi, I’m @Yussuf-The-Analyst
+👋 Hi, I’m @TheeAnalyst
 
 👀 I’m interested in data analytics, business intelligence, and building impactful dashboards
 
